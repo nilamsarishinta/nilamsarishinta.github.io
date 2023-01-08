@@ -1,1 +1,0 @@
-# nilamsarishinta.github.io
